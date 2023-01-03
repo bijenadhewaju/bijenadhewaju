@@ -1,0 +1,4 @@
+- Hi, I'm B
+- 🤔 I’m interested in Cyber Security.
+- 🌱 Learni
+- 💬 Worki
